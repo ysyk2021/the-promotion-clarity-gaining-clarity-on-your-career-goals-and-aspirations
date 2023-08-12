@@ -18,11 +18,6 @@ Using Career Clarity for Community Involvement and Social Impact
 
 Lastly, promotion clarity can be applied to community involvement and social impact. By identifying personal values and goals related to social justice and community service, individuals can seek out opportunities to make a difference in their communities. This may involve volunteering, working for non-profit organizations, or starting initiatives to address social issues. By aligning personal aspirations with community involvement and social impact, individuals can achieve a sense of purpose and fulfillment beyond their careers.
 
-Example of Applying Promotion Clarity Across Different Areas of Life
---------------------------------------------------------------------
-
-An individual interested in promoting sustainable living could apply promotion clarity to entrepreneurship by starting a business that provides sustainable products or services. They could apply promotion clarity to personal development by taking courses or workshops related to sustainability and environmentalism. Lastly, they could apply promotion clarity to community involvement and social impact by volunteering with local environmental organizations or starting initiatives to promote sustainable living practices in their community.
-
 Summary
 -------
 

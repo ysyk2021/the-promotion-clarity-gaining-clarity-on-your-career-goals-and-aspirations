@@ -36,11 +36,6 @@ Balancing work and personal life can be challenging and can make it difficult to
 * Communicate effectively with colleagues and supervisors
 * Practice self-care and stress management techniques
 
-Example of Overcoming Obstacles and Challenges to Career Clarity
-----------------------------------------------------------------
-
-An individual experiencing imposter syndrome and self-doubt might begin by recognizing and challenging negative self-talk and focusing on their accomplishments and strengths. They could also seek support from a mentor or therapist and practice self-care and stress management techniques. Finally, they could take small steps towards their career goals to build confidence.
-
 Summary
 -------
 

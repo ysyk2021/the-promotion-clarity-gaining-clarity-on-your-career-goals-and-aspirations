@@ -34,11 +34,6 @@ Creating a personal brand is a key component of developing a clear career vision
 * Participating in industry events and sharing insights and expertise
 * Seeking out mentorship and feedback to refine one's brand over time
 
-Example of Developing a Clear Career Vision
--------------------------------------------
-
-An individual interested in a career in healthcare might begin by assessing their skills, strengths, and interests. They could then identify their professional values and long-term and short-term career goals, such as obtaining a leadership position within their organization or pursuing a specialization in a particular area of healthcare. Finally, they could create a personal brand that emphasizes their unique strengths and skills and positions them as an expert in their field.
-
 Summary
 -------
 
