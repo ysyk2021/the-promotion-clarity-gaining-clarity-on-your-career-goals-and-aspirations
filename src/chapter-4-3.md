@@ -1,5 +1,3 @@
-Working with a Career Coach or Mentor for Guidance and Support
-=======================================================================
 
 In this chapter, we will explore the benefits of working with a career coach or mentor to gain clarity on your career goals and aspirations. A career coach or mentor can provide valuable guidance, support, and insights to help individuals navigate their professional paths with confidence and purpose.
 

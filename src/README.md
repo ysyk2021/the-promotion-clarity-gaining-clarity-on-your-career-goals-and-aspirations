@@ -1,4 +1,3 @@
-# Introduction
 
 Welcome to "The Promotion Clarity: Gaining Clarity on Your Career Goals and Aspirations"! In this book, we will explore the essential steps to help you gain clarity in your career and set yourself up for success in pursuing your goals and aspirations.
 

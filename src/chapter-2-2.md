@@ -1,5 +1,3 @@
-Identifying Your Professional Values and Goals
-===========================================================================================
 
 In this chapter, we will explore the process of developing a clear career vision by identifying your professional values and goals. Understanding what truly matters to you and setting clear objectives is essential for creating a fulfilling and successful career path.
 

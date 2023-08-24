@@ -1,5 +1,3 @@
-Leveraging Technology for Career Research and Planning
-===============================================================
 
 In this chapter, we will explore the role of technology in career research and planning. With advancements in technology, individuals now have access to a wealth of information and tools that can greatly enhance their ability to gain clarity on their career goals and aspirations.
 

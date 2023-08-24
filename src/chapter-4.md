@@ -1,5 +1,3 @@
-Chapter 4: Tools and Techniques for Career Clarity
-==================================================
 
 In this chapter, we will explore various tools and techniques for gaining clarity on career goals and aspirations.
 
